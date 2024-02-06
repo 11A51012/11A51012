@@ -1,4 +1,4 @@
-- How to reach me: email: artemzamtreuli@gmail.com; vkontakte:https://vk.com/11a51012; telegram:@11A51012
+- How to reach me: email: artemzamtreuli@gmail.com; vkontakte:https://vk.com/11a51012; telegram:@llA51012
 - Pronouns: He
 - Facts about me:
 - 1.i'm from Russia
